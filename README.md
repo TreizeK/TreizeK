@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @TreizeK
+- 👋 Hi, I’m @TreizeK_
 - 👀 I’m interested in parties, liquor, weed and more lololololol
-- 🌱 I’m currently learning by myself
-- 💞️ I’m looking to collaborate on ... 
+- 🌱 I’m currently learning by myself how to code
+- 💞️ I’m looking to collaborate on ... just help me 藍藍
 - 📫 How to reach me, i don't know just call me 
